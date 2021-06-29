@@ -1,1 +1,1 @@
-Founder of SickFrags.com 😎
+SickFrags.com
